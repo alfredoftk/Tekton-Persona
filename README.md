@@ -54,3 +54,11 @@ https://www.thoughtworks.com/insights/blog/makings-enduring-organizational-cultu
 
 ![Screenshot](IMG_3926.jpg)
 
+
+Adaptive/Resilient  =>  Slayed the dragon
+Challenge Lover/Grit/ Revolutionate  =>  we don't afraid to move beyond 
+Assertive / Selft-confidet   => We get Shit Done
+Commitment =>  
+Fast Learner =>
+
+
