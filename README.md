@@ -58,7 +58,7 @@ https://www.thoughtworks.com/insights/blog/makings-enduring-organizational-cultu
 Adaptive/Resilient  =>  Slayed the dragon
 Challenge Lover/Grit/ Revolutionate  =>  we don't afraid to move beyond 
 Assertive / Selft-confidet   => We get Shit Done
-Commitment =>  
-Fast Learner =>
+Commitment =>  Our word is our bond
+Fast Learner => Craving for Knowledge
 
 
