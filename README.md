@@ -56,10 +56,11 @@ https://www.thoughtworks.com/insights/blog/makings-enduring-organizational-cultu
 
 ## More Finetune
 
-![Screenshot](IMG_3996 2.JPG)
-![Screenshot](IMG_3997 2.JPG)
-![Screenshot](IMG_3998 2.JPG)
-![Screenshot](IMG_3999 2.JPG)
+![Screenshot](IMG_3996%202.JPG)
+
+![Screenshot](IMG_3997%202.JPG)
+![Screenshot](IMG_3998%202.JPG)
+![Screenshot](IMG_3999%202.JPG)
 
 
 ## The Last
