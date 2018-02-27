@@ -65,11 +65,12 @@ https://www.thoughtworks.com/insights/blog/makings-enduring-organizational-cultu
 
 ## The Last
 
-- Adaptive/Resilient  =>  We Slay the dragon, (En la historia de la humanidad hay siempre alguien que sobresale y se enfrenta al dragon, al problema, al reto, te enfrentas a lo desconocido y sales triunfante, aprendiendo)
-- Challenge Lover/Grit/ Revolutionate  =>  We are not afraid to move beyond 
-- Assertive / Selft-confidet   => We get Shit Done
-- Commitment =>  Our word is our bond
-- Fast Learner => We Crave for Knowledge
+- Adaptive/Resilient :  **We Slay the dragon**, (En la historia de la humanidad hay siempre alguien que sobresale y se enfrenta al dragon, al problema, al reto, te enfrentas a lo desconocido y sales triunfante, aprendiendo)
+- Challenge Lover / Grit / Status quo Challenger / Out of the box Thinker :  **We are not afraid to move beyond** 
+- Assertive / Selft-confidet / Make things happend / Proactive / Self Driven : **We get Shit Done**
+- Commitment / Honest / Team Truster :  **Our word is our bond**
+- Fast Learner / Courious : **We Crave for Knowledge**
 
-Make your family proud
+   **Make your family proud**
+   
 
