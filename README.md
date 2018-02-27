@@ -54,6 +54,15 @@ https://www.thoughtworks.com/insights/blog/makings-enduring-organizational-cultu
 
 ![Screenshot](IMG_3926.jpg)
 
+## More Finetune
+
+![Screenshot](IMG_3996 2.JPG)
+![Screenshot](IMG_3997 2.JPG)
+![Screenshot](IMG_3998 2.JPG)
+![Screenshot](IMG_3999 2.JPG)
+
+
+## The Last
 
 - Adaptive/Resilient  =>  We Slayed the dragon
 - Challenge Lover/Grit/ Revolutionate  =>  We are not afraid to move beyond 
